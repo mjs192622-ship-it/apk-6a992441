@@ -1,2 +1,0 @@
-# apk-6a992441
-WebView APK for GB FREE STUDIES 
